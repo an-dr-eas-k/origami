@@ -6,6 +6,7 @@
 Inspired from other origami stands for smartphones, the rack published here can be creased from a DIN A5 sheet of paper and also 
 
 ![alt](smartphone-rack/smartphone-rack.2.gif)
+![alt](smartphone-rack/IMG_5849.JPG)
 
 put in your trouser's pocket.
 
